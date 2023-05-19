@@ -1,2 +1,2 @@
 # CIT593
-Reach out at for solutions through profacademic1@gmail.com
+Reach out for solutions through profacademic1@gmail.com
